@@ -2,7 +2,7 @@
 
 
 
-1. **Privacy First:** Set all social media profiles to 'Private' and only accept requests from people you know personally. College students who post frequently on Instagram must necessarily set their profiles on private as they might have the risk of being tracked by some stranger and then get bullied by cyberbullies.
+**1.** **Privacy First:** Set all social media profiles to 'Private' and only accept requests from people you know personally. College students who post frequently on Instagram must necessarily set their profiles on private as they might have the risk of being tracked by some stranger and then get bullied by cyberbullies.
 
 
 
