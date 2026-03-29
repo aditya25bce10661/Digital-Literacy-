@@ -44,7 +44,7 @@ As a selected Student Digital Ambassador, this repository serves as my comprehen
 
 **Deliverable**: Activity proof and collaboration notes.
 
-**Link**: View my Digital Literacy Awareness Quiz here👉
+**Link**: View my Digital Literacy Awareness Quiz here👉 https://docs.google.com/forms/d/e/1FAIpQLSdycBleicu8ZdHJB39ayrW7qN2D1AINF_gKFII2jGJbt4dXOQ/viewform?usp=sharing&ouid=100643328750737052974
 
 **Task 4: Draft a Professional Email & Etiquette Guide**
 
